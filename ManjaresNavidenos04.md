@@ -1,3 +1,4 @@
+<div align="center">
 <img src="https://i.pinimg.com/736x/ae/b8/d8/aeb8d83db52254fe6ab790b18f371389.jpg" width="520" heights="374" />
 # Manjares Navidenos 
 
