@@ -19,8 +19,9 @@
 1. En un recipiente hondo, mezcla harina de trigo, agua, bacalao, sal y el polvo de hornear, hasta que se forme una sustancia espesa.
 2. Una vez culminado el procedimiento, coloca suficiente aceite en una sartén a fuego medio alto, para freír la mezcla durante 10 minutos (hasta que doren).
 
-#### Referencias: 
-https://www.sabrosia.pr/recetas/2018/06/27/bacalaitos.html 
+#### video:
+- https://www.bing.com/videos/search?q=como+hacer+bacalaitos&&view=detail&mid=3505426818C0B9D7AAF73505426818C0B9D7AAF7&&FORM=VDRVRV
 
-### video:
-- https://www.bing.com/videos/search?q=como+hacer+bacalaitos&&view=detail&mid=3505426818C0B9D7AAF73505426818C0B9D7AAF7&&FORM=VDRVRV 
+
+### referencia: 
+- https://www.sabrosia.pr/recetas/2018/06/27/bacalaitos.html 
