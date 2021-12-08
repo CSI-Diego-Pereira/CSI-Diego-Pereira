@@ -2,11 +2,11 @@
   
 <img src="https://i.pinimg.com/736x/ae/b8/d8/aeb8d83db52254fe6ab790b18f371389.jpg" width="520" heights="374" />
   
-# Manjares Navidenos 
-  https://www.bing.com/videos/search?q=como+hacer+bacalaitos&&view=detail&mid=3505426818C0B9D7AAF73505426818C0B9D7AAF7&&FORM=VDRVRV
-  
+# Manjares Navideños 
+
 ## Bacalaitos 
-  
+</div>
+
 ### ingredientes
 - 2 tazas de harina de trigo
 - 2 tazas de agua 
@@ -22,5 +22,5 @@
 #### Referencias: 
 https://www.sabrosia.pr/recetas/2018/06/27/bacalaitos.html 
 
-  ### video:
-  https://www.bing.com/videos/search?q=como+hacer+bacalaitos&&view=detail&mid=3505426818C0B9D7AAF73505426818C0B9D7AAF7&&FORM=VDRVRV 
+### video:
+- https://www.bing.com/videos/search?q=como+hacer+bacalaitos&&view=detail&mid=3505426818C0B9D7AAF73505426818C0B9D7AAF7&&FORM=VDRVRV 
